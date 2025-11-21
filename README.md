@@ -1,0 +1,1 @@
+# intellect_lo_2025
